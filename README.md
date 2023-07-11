@@ -1,0 +1,1 @@
+# allianz-patika-final-case
